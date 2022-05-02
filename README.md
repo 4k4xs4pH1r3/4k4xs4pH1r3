@@ -1,4 +1,4 @@
-### Hi there 👋 This is my @4k4xs4ph1r3's ✨ _special_ ✨ GitHub Skyline history
+### Hi there 👋 This is my @4k4xs4ph1r3's ✨ _special_ ✨ GitHub repository Skyline history
 
 [2022](https://skyline.github.com/4k4xs4ph1r3/2022)
 [2021](https://skyline.github.com/4k4xs4ph1r3/2021)
