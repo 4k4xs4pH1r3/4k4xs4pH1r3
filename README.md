@@ -1,11 +1,6 @@
 ### Hi there 👋 This is my @4k4xs4ph1r3's ✨ _special_ ✨ GitHub repository Skyline history
 
-[2022](https://skyline.github.com/4k4xs4ph1r3/2022)
-[2021](https://skyline.github.com/4k4xs4ph1r3/2021)
-[2020](https://skyline.github.com/4k4xs4ph1r3/2020)
-[2019](https://skyline.github.com/4k4xs4ph1r3/2019)
-[2018](https://skyline.github.com/4k4xs4ph1r3/2018)
-[2017](https://skyline.github.com/4k4xs4ph1r3/2018)
+[2022](https://skyline.github.com/4k4xs4ph1r3/2022) | [2021](https://skyline.github.com/4k4xs4ph1r3/2021) | [2020](https://skyline.github.com/4k4xs4ph1r3/2020) | [2019](https://skyline.github.com/4k4xs4ph1r3/2019) | [2018](https://skyline.github.com/4k4xs4ph1r3/2018) | 2017](https://skyline.github.com/4k4xs4ph1r3/2018)
 
 
 [![4k4xs4pH1r3.github.io](https://github.githubassets.com/images/spinners/octocat-spinner-128.gif)](https://4k4xs4pH1r3.github.io)
